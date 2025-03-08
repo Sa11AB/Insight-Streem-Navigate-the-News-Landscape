@@ -1,1 +1,1 @@
-# Insight-Streem-Navigate-the-News-Landscape
+# Insight-Stream-Navigate-the-News-Landscape
